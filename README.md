@@ -1,34 +1,24 @@
-## abt me !
-haii, im "bad bunny's lawyer" / "The Hash Slinging Slasher" or "THSS" for short !
+## abt me
+haii, im "bad bunny's lawyer" / "The Hash Slinging Slasher" or "THSS" for short
 
-im working on setting up an introductory strawpage and becoming more acquainted with how to use Git !
+꒰ i think the names are silly ꒱
 
-i absolutely love shipping characters and talking abt ships ! 
+i like to draw a lot
 
-im open to : rarepairs, crack ships, same sex ships, etc.
+・❥・
+![1000005515](https://github.com/user-attachments/assets/c436ecfa-5aac-489f-80de-eac934fa55a0)
+・❥・
 
-my main fandoms - op + opbr, jjk
+i am THE no.1 Yamato, Uta, Ace, and Boa fan and i will never be dethroned
 
-### dni !
+### my interests
 
-◤over 18
+* opbr ꒰ ONE PIECE Bounty Rush ꒱
+* drawing
+* music
 
-◤discriminatory 
-
-◤shameless abt darkship material/related content
-
-#### thx for reading ! > . <
-<!--
-**bad-bunnys-lawyer/bad-bunnys-lawyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+#### dni
+if you are:
+* 18 +
+* discriminatory
+* open abt darkship / related content 
